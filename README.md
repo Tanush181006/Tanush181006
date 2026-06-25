@@ -1,6 +1,6 @@
 # Hi, I'm Tanush Agarwal 👋
 
-🎓 B.Tech CSE (Artificial Intelligence & Machine Learning) @ SRM Institute of Science and Technology, Chennai (2023–2027)
+🎓 B.Tech CSE (Artificial Intelligence & Machine Learning) @ SRM Institute of Science and Technology, Chennai (2024–2028)
 
 ---
 
